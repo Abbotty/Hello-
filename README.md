@@ -1,7 +1,7 @@
 # Hello
 戛纳电影节海报背后的电影史 今年的遭影迷诟病最多！
 2017-05-23 15:50:57   来源：新浪游戏http://games.sina.com.cn/
-![image]
+![]
 (https://image.baidu.com/search/detail?ct=503316480&z=0&ipn=false&word=%E5%90%B4%E4%B8%96%E5%8B%8B&hs=2&pn=3&spn=0&di=141491099640&pi=0&rn=1&tn=baiduimagedetail&is=0%2C0&ie=utf-8&oe=utf-8&cl=2&lm=-1&cs=746578592%2C1336763208&os=3804936222%2C109472406&simid=3354965653%2C147292427&adpicid=0&lpn=0&ln=30&fr=ala&fm=&sme=&cg=star&bdtype=0&oriquery=%E5%90%B4%E4%B8%96%E5%8B%8B&objurl=http%3A%2F%2Fb-ssl.duitang.com%2Fuploads%2Fitem%2F201512%2F19%2F20151219184849_EMhjx.png&fromurl=ippr_z2C%24qAzdH3FAzdH3Fooo_z%26e3B17tpwg2_z%26e3Bv54AzdH3Fks52AzdH3F%3Ft1%3Dc9ccdac88&gsm=0)
 　　电影诞生之际，两个叫卢米埃的兄弟发明了电影。他们希望有人来看电影，于是做了张海报《卢米埃影城》。电影海报用设计语言向观众传达内容的一种方式。电影节海报，相比电影海报有所不同，不仅要立足电影，更需要展示电影节一路走来的历史、所要传达的文化内涵、还有电影人或电影影史意义等因素。
 
